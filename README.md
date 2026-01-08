@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kenan.aljaber.p@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yUp1sdlKCwUNDSHUOV3PHxlr6Cr6op-x/view?usp=share_link](https://drive.google.com/file/d/1yUp1sdlKCwUNDSHUOV3PHxlr6Cr6op-x/view?usp=share_link)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
